@@ -39,4 +39,6 @@ My goal is to become a skilled developer, build meaningful projects, contribute 
 
 Feel free to explore my repositories and follow my development journey.
 
+Catch me anywhere: @ayvalor
+
 Thanks for visiting my profile.
